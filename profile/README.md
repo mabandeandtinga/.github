@@ -17,7 +17,7 @@ Embora actualmente tenhamos projectos privados, estamos envolvidos em trabalhos 
 
 ## Contato
 
-Estamos abertos a novos projetos e inovações. Se você está procurando colaboradores dedicados e inovadores para seus projetos tecnológicos, não hesite em entrar em contato. Estamos prontos para contribuir com nossas habilidades e ideias para o sucesso de iniciativas digitais.
+Estamos abertos a novos projetos e inovações. Se você está procurando colaboradores dedicados e inovadores para seus projetos tecnológicos, não hesite em entrar em contato.
 
 Para saber mais sobre nós, visite nossos perfis no LinkedIn:
 

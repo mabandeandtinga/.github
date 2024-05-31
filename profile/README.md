@@ -13,7 +13,7 @@ Nós possuímos um conjunto diversificado de stacks tecnológicas, incluindo:
 
 ## Projetos
 
-Embora atualmente tenhamos projetos privados, estamos envolvidos em trabalhos que possuem impacto social significativo. Estamos sempre abertos a novos desafios e prontos para desenvolver soluções inovadoras.
+Embora actualmente tenhamos projectos privados, estamos envolvidos em trabalhos que possuem impacto social significativo. Estamos sempre abertos a novos desafios e prontos para desenvolver soluções inovadoras.
 
 ## Contato
 

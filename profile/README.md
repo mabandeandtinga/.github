@@ -21,5 +21,5 @@ Estamos abertos a novos projetos e inovações. Se você está procurando colabo
 
 Para saber mais sobre nós, visite nossos perfis no LinkedIn:
 
-- [Mario Manuel Mabande](https://www.linkedin.com/in/mariomthree/)
-- [Naum Armindo Tinga](https://www.linkedin.com/in/naum-tinga-a63bb4186/)
+- [Mario Manuel Mabande](https://mariomthree.com/)
+- [Naum Armindo Tinga](https://naumtinga.com/)
